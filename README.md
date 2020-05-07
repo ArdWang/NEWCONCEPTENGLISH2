@@ -99,4 +99,10 @@ My aunt Jennifer an actress.She over thirty years old. She often appear on the s
 
 
 
+#### Lesson 18 He often does this
+
+The writer had lunch at a village pub. She couldn't found her bag after her meal. She couldn't paid the bill. The landlord found it for her. His dog had taken it into the garden.  
+
+
+
 
