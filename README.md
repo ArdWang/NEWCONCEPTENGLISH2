@@ -101,7 +101,12 @@ My aunt Jennifer an actress.She over thirty years old. She often appear on the s
 
 #### Lesson 18 He often does this
 
-The writer had lunch at a village pub. She couldn't found her bag after her meal. She couldn't paid the bill. The landlord found it for her. His dog had taken it into the garden.  
+The writer had lunch at a village pub. She couldn't found her bag after her meal. She couldn't paid the bill. The landlord found it for her. His dog had taken it into the garden. 
+
+
+#### Lesson 19 Sold out
+
+The play may begin at any moment. May I have two tickets please.There were not any left. Susan and me were disappointed. Just then, a man hurried to the ticket office. He returned two tickets. They're for next Wedensday's performance. I bought them. 
 
 
 
