@@ -114,5 +114,14 @@ The play may begin at any moment. May I have two tickets please.There were not a
 The writer's favourite sport is fishing. Some fishermen are unlucky.Instead of catching fish, They catch old boots and rubbish. The writer is he not so lucky. He never catch anything. He is not really intereted in fishing. He is only intered in sitting in a boat and doing nothing at all.
 
 
+#### Lesson21 Mad of not
+
+The writer is slowly going mad. He live near an airport and passing planes can be heard night and day. Most of his neighbours left their homes. He has been offered money to leave. He is determined to stay here. Everyone says he must be mad and they are probably right. 
+
+
+#### Lesson22 A glass evenlope
+
+Last year, Jane travelling across the Channel and put a piece of paper with her name and address on it into a bottle. She received a letter from a girl in Holland. They write to each other regularly now. They send their letters by post.
+
 
 
