@@ -123,5 +123,9 @@ The writer is slowly going mad. He live near an airport and passing planes can b
 
 Last year, Jane travelling across the Channel and put a piece of paper with her name and address on it into a bottle. She received a letter from a girl in Holland. They write to each other regularly now. They send their letters by post.
 
+#### Lesson23 A new house
+
+My sister would come to England next year. If she comes, She will get a surprise. I have a new house in the country. I had invited my sister to stay. It is a very modern house. It has got many large rooms and a lovely garden.
+
 
 
