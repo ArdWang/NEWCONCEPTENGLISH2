@@ -127,5 +127,9 @@ Last year, Jane travelling across the Channel and put a piece of paper with her 
 
 My sister would come to England next year. If she comes, She will get a surprise. I have a new house in the country. I had invited my sister to stay. It is a very modern house. It has got many large rooms and a lovely garden.
 
+#### Lesson24 It could be worse
+
+I had just lost 50 pounds. I felt very upset. I told the Manager's about it. He could do nothing. He begun to complain about this wicked world. A girl came in with the money just then. She had found outside the writer's room. There is still some honesty in this world.
+
 
 
