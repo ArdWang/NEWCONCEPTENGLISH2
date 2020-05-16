@@ -135,7 +135,7 @@ I had just lost 50 pounds. I felt very upset. I told the Manager's about it. He 
 
 #### Lesson25 Do the English speak English?
 
-I arrived at a railway station in London and asked a porter the way to my hotel but he couldn't undertand me. he understand me at last but I couldn't undertand his answer. My teacher never speak English like that. "You'll soon learn English!", The porter said. In England, each person speaks a different language. They understand each other but I don't understand them.
+I arrived at a railway station in London and asked a porter the way to my hotel but he couldn't understand me. he understand me at last but I couldn't undertand his answer. My teacher never speak English like that. "You'll soon learn English!", The porter said. In England, each person speaks a different language. They understand each other but I don't understand them.
 
 Letter writting
 
