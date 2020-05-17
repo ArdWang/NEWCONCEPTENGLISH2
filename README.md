@@ -145,3 +145,8 @@ Huizhou,
 Guangdong,
 China.
 16th May, 2020
+
+
+#### Lesson26 The best art critics
+
+The writer's study art and he paint a lot of pictures. Many people pretend that they understand modern art. Paintings always have a meaning. They are sometimes pretty patterns. Yong children not only appreciate modern paintings better than others but notice more. The writer's young sister go into his room yesterday and she examine his new picture. He had hang it upside down and she notice this immedialtely.
