@@ -151,4 +151,9 @@ China.
 
 The writer's study art and he paint a lot of pictures. Many people pretend that they understand modern art. Paintings always have a meaning. They are sometimes pretty patterns. Yong children not only appreciate modern paintings better than others but notice more. The writer's young sister go into his room yesterday and she examine his new picture. He had hang it upside down and she notice this immedialtely.
 
-#### Lesson27 wait
+#### Lesson27 A wet night
+
+The boys put up their tent in the middle of a field and they cooked a meal over an open fire. They told stories and songs by the campfire. But some time later began to rain so their crept into their tent. In the middle of the night, the boys woke up. The tent was full of the water so their runsh outside. A stream had formed in the field and then flowed right under their tent.
+
+
+
