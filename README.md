@@ -153,7 +153,7 @@ The writer's study art and he paint a lot of pictures. Many people pretend that 
 
 #### Lesson27 A wet night
 
-The boys put up their tent in the middle of a field and their cooked a meal over an open fire. They told stories and songs by the campfire. But some time later it began to rain so their crept into their tent. In the middle of the night, the boys woke up. The tent was full of the water so their runsh outside. A stream had formed in the field and then flowed right under their tent.
+The boys put up their tent in the middle of a field and they cooked a meal over an open fire. They told stories and songs by the campfire. But some time later it began to rain so they crept into their tent. In the middle of the night, the boys woke up. The tent was full of the water so they runshed outside. A stream had formed in the field and then flowed right under their tent.
 
 
 
