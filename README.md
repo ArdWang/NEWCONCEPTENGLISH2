@@ -155,5 +155,9 @@ The writer's study art and he paint a lot of pictures. Many people pretend that 
 
 The boys put up their tent in the middle of a field and they cooked a meal over an open fire. They told stories and songs by the campfire. But some time later it began to rain so they crept into their tent. In the middle of the night, the boys woke up. The tent was full of the water so they runshed outside. A stream had formed in the field and then flowed right under their tent.
 
+#### Lesson28 No Parking
+
+Jasper White believe in ancient myths. When he returns home at night, he always finds that someone has packed a car outside his gate so he put up 'No Parking' signs. But they hasn't paid any attention to them. Now he has put an ugly stone stone head over the gate. It is Medusa head.He want to she will turn cars and their owners to stone. But none of them has been turned to stone yet.
+
 
 
