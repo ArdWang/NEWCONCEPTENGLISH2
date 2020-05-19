@@ -157,7 +157,7 @@ The boys put up their tent in the middle of a field and they cooked a meal over 
 
 #### Lesson28 No Parking
 
-Jasper White believe in ancient myths. When he returns home at night, he always finds that someone has packed a car outside his gate so he put up 'No Parking' signs. But they hasn't paid any attention to them. Now he has put an ugly stone stone head over the gate. It is Medusa head.He want to she will turn cars and their owners to stone. But none of them has been turned to stone yet.
+Jasper White believes in ancient myths. Car owners has packed a car outside his gate so he has put up 'No Parking' signs. But they haven't paid any attention to them. Now he has put an ugly stone stone head over the gate. It is Medusa head.He want to turn cars and their owners to stone. But none of them has been turned to stone yet.
 
 
 
