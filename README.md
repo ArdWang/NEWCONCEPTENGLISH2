@@ -160,4 +160,8 @@ The boys put up their tent in the middle of a field and they cooked a meal over 
 Jasper White believes in ancient myths. Car owners has packed a car outside his gate so he has put up 'No Parking' signs. But they haven't paid any attention to them. Now he has put an ugly stone stone head over the gate. It is Medusa head.He want to turn cars and their owners to stone. But none of them has been turned to stone yet.
 
 
+#### Lesson29 Taxi!
+
+Captain Ben Fawectt has bought a small Swiss aeroplane and he use it as a taxi. It is called a 'Pilatus Porter'. It can not only carry seven passengers but can land anywhere. Captain Fawcett has taken passengers to many strange places. He refused to fly a businessman to Rockall. The journey was too dangerous.
+
 
