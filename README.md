@@ -166,6 +166,6 @@ Captain Ben Fawectt has bought a small Swiss aeroplane and he use it as a taxi. 
 
 #### Lesson30 Football and polo?
 
-The writer sitting by the river last Sunday. Some children were playing games nearby. Suddenly, one of the children kicked a boll very hard and it went towards a passing boat. The man in the boat neither see the ball nor hear people shouting. The ball hit the man and the children had all run away. However the man wasn't angry and he threw the ball back to bank.
+The writer sat by the river last Sunday. Some children were playing games nearby. One of the children kicked a boll very hard and it went towards a passing boat. The man in the boat neither saw the ball nor hear people shouted. The ball hit the man and the children had all ran away. However the man wasn't angry and he threw the ball back to bank.
 
 
