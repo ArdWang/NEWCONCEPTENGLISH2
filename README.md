@@ -164,4 +164,8 @@ Jasper White believes in ancient myths. Car owners has packed a car outside his 
 
 Captain Ben Fawectt has bought a small Swiss aeroplane and he use it as a taxi. It is called a 'Pilatus Porter'. It can not only carry seven passengers but can land anywhere. Captain Fawcett has taken passengers to many strange places. He refused to fly a businessman to Rockall. The journey was too dangerous.
 
+#### Lesson30 Football and polo?
+
+The writer sitting by the river last Sunday. Some children were playing games nearby. Suddenly, one of the children kicked a boll very hard and it went towards a passing boat. The man in the boat neither see the ball nor hear people shouting. The ball hit the man and the children had all run away. However the man wasn't angry and he threw the ball back to bank.
+
 
