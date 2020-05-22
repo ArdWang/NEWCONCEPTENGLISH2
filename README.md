@@ -168,4 +168,8 @@ Captain Ben Fawectt has bought a small Swiss aeroplane and he use it as a taxi. 
 
 The writer sat by the river last Sunday. Some children were playing games nearby. One of the children kicked a boll very hard and it went towards a passing boat. The man in the boat neither saw the ball nor hear people shouted. The ball hit the man and the children had all ran away. However the man wasn't angry and he threw the ball back to bank.
 
+#### Lesson31 Success story
+
+Frank Hawkins was telling the writer about his experiences as a young man. Frank used to work in a small shop as a boy. He used to repaired bicycles. In 1958, he bought a small workshop of his own and in his twenties he made spare parts for aeroplanes. He employ a lot of people in a few years. After a while his wife came into the room. she wanted him to repaired their grandson's bicycle.
+
 
