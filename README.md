@@ -170,6 +170,6 @@ The writer sat by the river last Sunday. Some children were playing games nearby
 
 #### Lesson31 Success story
 
-Frank Hawkins was telling the writer about his experiences as a young man. Frank used to work in a small shop as a boy. He used to repaired bicycles. In 1958, he bought a small workshop of his own and in his twenties he made spare parts for aeroplanes. He employ a lot of people in a few years. After a while his wife came into the room. she wanted him to repaired their grandson's bicycle.
+Frank Hawkins was telling the writer about his experiences as a young man. Frank used to work in a small shop as a boy. He used to repaire bicycles. In 1958, he bought a small workshop of his own and in his twenties he made spare parts for aeroplanes. He employed a lot of people in a few years. After a while his wife came into the room. she wanted him to repaired their grandson's bicycle.
 
 
