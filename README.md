@@ -181,3 +181,7 @@ Frank Hawkins was telling the writer about his experiences as a young man. Frank
 #### Lesson32 Shopping made easy
 
 A detective watched a well-dressed woman in a large store one Monday. She bought a few small articles and then she chose an expensive dress. The assistant warpped it up for her and the woman took it. She didn't pay for it so the detective arrested her. The assistant was her daugther. She 'gave' her mother once a week. (gave mean is steal)
+
+#### Lesson33 Out of darkness
+
+One afternoon the girl set out from the coast and she was caught in a storm. She boat struck a rock so she jumped into sea. She swam that night covered a distance of 8 miles. Early next morning, she reached the shore. She had seen light was high up on the cliffs and she climbed up. She found herself in hospital.
