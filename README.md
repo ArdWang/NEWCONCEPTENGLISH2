@@ -1,24 +1,30 @@
 # NEWCONCEPTENGLISH2
 ### this is NEWCONCEPTENGLISH2
 
-#### Lesson 4
+#### Lesson 1  A Private Conversation 
 
-An exciting trip
+The writer went to the theatre last week.He did't enjoy the play.A young man and a young woman were sitting behind him.They were talking loudly.The writer couldn't hear the actors.He turned round.He said he couldn't hear a word.The young man said,'This is a private conversation!'.
 
-Summary writting 
+#### Lesson 2  Breakfast or Lunch
+
+The writer always gets up late on Sundays.He got up late last Sunday.His aunt telephoned then.She had just arrived by train.She was coming to see him.He said,'I am still having breakfast'.His aunt was surprised.It was one o'clock.
+
+#### Lesson 3  Please Send Me a Card 
+
+Postcards always spoil the writer's holidays.He spent his holiday in Italy last summer.He tought about postcards every day.He didn't send any cards to his friends.He bought thirty-seven cards on the last day.He staied at home all day.He didn't write any cards.
+
+
+#### Lesson 4 An exciting trip
 
 The writer has just received a letter from his brother,Tim.Tim is an engineer.He has been there for six months in Australia.He has already visited many places.He has in Alice Springs ,a small town in the center of Australia.He has never been aboard before,So he is enjoying his trip very much.
 
-#### Lesson 5
-No wrong numbers
+#### Lesson 5 No wrong numbers
 Mr. Scott opened his second garage in Pinhurst. His first garage is in Silbury. Pinhurst is only five miles from Silbury. He can’t get a telephone for his new garage.He has bought twelve pigeous.The brids carried messages from one garage to the other in 3 minutes.
 
-#### Lesson 6
-Percy Buttons
+#### Lesson 6 Percy Buttons
 The writer has just moved to a house in Bridge street. a beggar knocked at ?her door<The writer’s> yerterday. He stood on his heed and sang songs. She gave him a meal and a glass of beer in return for this. The beggar’s name is Percy Buttons. He calls at every house once a month.
 
-#### Lesson 7
-Too late
+#### Lesson 7 Too late
 The detectives were wating at the airport all morning. They were expecting a valuable parcel of diamonds from South Africa. Two men took the parcel off the plane and carried it into the Customs. Two detectives opened the parcel. The parcel was full of stones and sand.
 
 Luozhixiang is a famous singer.He is also a popular actor and dancer. recently he has been a salesman on the Internet.last year he held a concert in Jiangsu province. thousands of people joined the concert and enjoyed themselves. When the concert ended, it caused a traffic jam.But I didn't go,Beacuse I'm not a fanboy,so I stayed at home and played computer games.
@@ -172,4 +178,6 @@ The writer sat by the river last Sunday. Some children were playing games nearby
 
 Frank Hawkins was telling the writer about his experiences as a young man. Frank used to work in a small shop as a boy. He used to repaire bicycles. In 1958, he bought a small workshop of his own and in his twenties he made spare parts for aeroplanes. He employed a lot of people in a few years. After a while his wife came into the room. she wanted him to repaired their grandson's bicycle.
 
+#### Lesson32 Shopping made easy
 
+A detective watched a well-dressed woman in a large store one Monday. She bought a few small articles and then she chose an expensive dress. The assistant warpped it up for her and the woman took it. She didn't pay for it so the detective arrested her. The assistant was her daugther. She 'gave' her mother once a week. (gave mean is steal)
