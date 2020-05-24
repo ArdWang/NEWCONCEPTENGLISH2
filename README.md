@@ -185,3 +185,7 @@ A detective watched a well-dressed woman in a large store one Monday. She bought
 #### Lesson33 Out of darkness
 
 One afternoon the girl set out from the coast and she was caught in a storm. She boat struck a rock so she jumped into sea. She swam that night covered a distance of 8 miles. Early next morning, she reached the shore. She had seen light was high up on the cliffs and she climbed up. She found herself in hospital.
+
+#### Lesson34 Quick work
+Dan Robinson was worried. He had received a letter from the local police. He went to the station yesterday. He is not worried anymore. The police had been found his bicycle. Dan not only was surprised but he was amused as well. He bicycle was stolen twenty years gao.He was fifteen then. 
+
