@@ -189,3 +189,7 @@ Nearly a week passed ago,One afternoon the girl sat out from the coast and she c
 #### Lesson34 Quick work
 Dan Robinson was worried. He had received a letter from the local police. He went to the station yesterday. He is not worried anymore. The police had been found his bicycle. Dan not only was surprised but he was amused as well. He bicycle was stolen twenty years gao.He was fifteen then. 
 
+#### Lesson35 Stop thief
+
+Roy finding his new job as a bus driver exciting. He saw two thieves in the Catford Street recently. They were runing out of a shop and Roy drove his bus straight at them so they dropped the stole money and got into a car. Roy drove his bus into the back of it and he damaged their car. After this he telephoned police. Both were men were arrested later.
+
