@@ -191,7 +191,7 @@ Dan Robinson was worried. He had received a letter from the local police. He wen
 
 #### Lesson35 Stop thief
 
-Roy finding his new job as a bus driver exciting. He saw two thieves in the Catford Street recently. They were runing out of a shop and Roy drove his bus straight at them so they dropped the stole money and got into a car. Roy drove his bus into the back of it and he damaged their car. After this he telephoned police. Both were men were arrested later.
+Roy is finding his new job as a bus driver exciting. He saw two thieves in the Catford Street recently. They were runing out of a shop and Roy drove his bus straight at them so they dropped the stole money and got into a car. Roy drove his bus into the back of it and he damaged their's car. After this he telephoned police. Both were men were arrested later.
 
 #### Lesson36 Across the Channel
 
