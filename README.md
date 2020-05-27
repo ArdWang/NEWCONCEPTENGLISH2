@@ -196,5 +196,9 @@ Roy is finding his new job as a bus driver exciting. He saw two thieves in the C
 #### Lesson36 Across the Channel
 
 Debbie Hart is going to swim across the English Channel tomorrow. She is eleven years old and she is a strong swimmer. Mr. Hart has been trained his daughter. He will set out with her in a small boat. Doebbie's mother will be waiting for her on the English coast. She swam the Channel as a girl.
+
+#### Lesson37 The Olympic Games
+
+The Olympic Games be held in our country in four years' time so the government will be putting up new buildings. The buildings have been designed by Kurt Gunter and workers will have completed the new stadium by the end of next year. The Games will be held in this country for the first time and we are looking forward to them.
  
 
