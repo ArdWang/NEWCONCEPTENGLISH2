@@ -199,6 +199,6 @@ Debbie Hart is going to swim across the English Channel tomorrow. She is eleven 
 
 #### Lesson37 The Olympic Games
 
-The Olympic Games be held in our country in four years' time so the government will be putting up new buildings. The buildings have been designed by Kurt Gunter and workers will have completed the new stadium by the end of next year. The Games will be held in this country for the first time and we are looking forward to them.
+The Olympic Games will be held in our country in four years' time so the government will be putting up new buildings. The buildings have been designed by Kurt Gunter and workers will have completed the new stadium by the end of next year. The Games will be held in this country for the first time and we are looking forward to them.
  
 
