@@ -204,5 +204,9 @@ The Olympic Games will be held in our country in four years' time so the governm
 #### Lesson38 Everything except the weather
 
 The writer's friend, Harrison had lived in the Mediterranean spent many years but he wanted to in England so he bought a house in England. The summer that year it was very bad and he complianed about the weather. Harrison not only sold the house but also left the country in the end.
+
+#### Lesson39 Am I all right
+
+Dr. Millington refused to tell his patinet Mr.John Gilbert whether his operation had been successful. The patient telephoned Dr. Millington next day and he inquired about a certain patient. The doctor answered a number of questions about the patient and then he asked whether the caller was a relative. The caller then told him who he was.
  
 
