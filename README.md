@@ -209,4 +209,6 @@ The writer's friend, Harrison had lived in the Mediterranean spent many years bu
 
 Dr. Millington refused to tell his patinet Mr.John Gilbert whether his operation had been successful. The patient telephoned Dr. Millington next day and he inquired about a certain patient. The doctor answered a number of questions about the patient and then he asked whether the caller was a relative. The caller then told him who he was.
  
+#### Lesson40 Food and talk
 
+The writer sat next to Mrs. Rumbold at the dinner party. He tried to make conversation but she was busy eating. He talked about the new paly at 'The Globe' and he talked about the holidays. she answered his questions briefy. Then He asked her if she was enjoying her dinner and she answered 'if you ate more and talked less, we would both enjoy our dinner!'.
