@@ -212,3 +212,7 @@ Dr. Millington refused to tell his patinet Mr.John Gilbert whether his operation
 #### Lesson40 Food and talk
 
 The writer sat next to Mrs. Rumbold at the dinner party. He tried to make conversation but she was busy eating. He talked about the new paly at 'The Globe' and he talked about the holidays. she answered his questions briefy. Then He asked her if she was enjoying her dinner and she answered 'if you ate more and talked less, we would both enjoy our dinner!'.
+
+#### Lesson41 Do you call that a hat?
+
+The writer's wife was trying on a hat but he didn't like it. He sat down and waited for her. Then they began arguing again. He had bought tie the day before but his wife didn't like it. He said,'A man never have too many ties'. His wife used exactly the same argument and she bought the hat. It looked like a lighthouse.
