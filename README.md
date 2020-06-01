@@ -216,3 +216,8 @@ The writer sat next to Mrs. Rumbold at the dinner party. He tried to make conver
 #### Lesson41 Do you call that a hat?
 
 The writer's wife was trying on a hat but he didn't like it. He sat down and waited for her. Then they began arguing again. He had bought tie the day before but his wife didn't like it. He said,'A man never have too many ties'. His wife used exactly the same argument and she bought the hat. It looked like a lighthouse.
+
+#### Lesson42 Not very musical
+
+We watched a snake charmer in a square in old Delhi. He had a long pipe and two large baskets. He played a tune and the snake in one of the baskets rose follow the movements of the pipe. Then the snake charmer played modern tunes but the snake continued to dance slowly. It didn't know the different between Indian music and jazz.
+
