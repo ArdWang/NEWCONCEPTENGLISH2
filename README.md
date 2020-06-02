@@ -221,3 +221,7 @@ The writer's wife was trying on a hat but he didn't like it. He sat down and wai
 
 We watched a snake charmer in a square in old Delhi. He had a long pipe and two large baskets. He played a tune and the snake in one of the baskets rose follow the movements of the pipe. Then the snake charmer played modern tunes but the snake continued to dance slowly. It didn't know the different between Indian music and jazz.
 
+#### Lesson43 Over the South Pole
+
+The American explorer,R.E.Byrd became the first man to flew over the South Pole in 1929. He took a lot of photographs but then he ran into difficulties. His plane got over the mountains so he ordered his men to throw out two heavy food sacks. The plane then flew over the mountains and it didn't continue without further trouble.
+
