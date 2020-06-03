@@ -225,3 +225,7 @@ We watched a snake charmer in a square in old Delhi. He had a long pipe and two 
 
 The American explorer,R.E.Byrd became the first man to flew over the South Pole in 1929. He took a lot of photographs but then he ran into difficulties. His plane got over the mountains so he ordered his men to throw out two heavy food sacks. The plane then flew over the mountains and it didn't continue without further trouble.
 
+#### Lesson44 Through the forest!
+
+Two men tried to steal Mrs. Sterling's handbag. She was having a picnic at the time. They took the bag after a struggle and they ran through the trees. She ran after them and caught up with them. The men had sat down and they were going through the contents of the bag. Mrs.Sterling ran Straight at them so they dropped the bag and ran away.
+
