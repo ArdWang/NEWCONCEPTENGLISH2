@@ -223,7 +223,7 @@ We watched a snake charmer in a square in old Delhi. He had a long pipe and two 
 
 #### Lesson43 Over the South Pole
 
-The American explorer,R.E.Byrd became the first man to flew over the South Pole in 1929. He took a lot of photographs but then he ran into difficulties. His plane got over the mountains so he ordered his men to throw out two heavy food sacks. The plane then flew over the mountains and it didn't continue without further trouble.
+The American explorer,R.E.Byrd became the first man to flew over the South Pole in 1929. He took a lot of photographs during the flight but then he ran into difficulties. His plane got over the mountains so he ordered his men to throw out two heavy food sacks. The plane then flew over the mountains and it didn't continue without further trouble.
 
 #### Lesson44 Through the forest!
 
