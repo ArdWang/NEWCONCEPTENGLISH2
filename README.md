@@ -233,3 +233,8 @@ Two men tried to steal Mrs. Sterling's handbag. She was having a picnic at the t
 
 The local butcher, Sam Benton, taking his savings to the post office but he had lost his wallet. Dan Sam not only received half his money three months later but he received a note as well. The note said,'A thief,yes,but only 50 percent a thief!', The thief included a note every time he sent Sam more money. The last note said,'I am 100 percent hoest now!'.
 
+#### Lesson46 Expensive and uncomfortable
+
+The plane from Landon arrived at Sydney airport and workers unload a number of wooden boxes. They contained clothing. One of the boxes was extremely heavy so a worker to opend up the box. He found a man was lying in the on top of a pile of woollen goods. The man was arrested. He had travelled in the box from London. He had pay 3500 pounds. The normal price of a ticket is 2000 pounds.
+
+
