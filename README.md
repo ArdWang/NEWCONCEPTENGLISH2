@@ -237,4 +237,8 @@ The local butcher, Sam Benton, taking his savings to the post office but he lost
 
 The plane from Landon arrived at Sydney airport and workers unload a number of wooden boxes. They contained clothing. One of the boxes was extremely heavy so a worker to opend up the box. He found a man was lying in the on top of a pile of woollen goods. The man was arrested. He had travelled in the box from London. He had pay 3500 pounds. The normal price of a ticket is 2000 pounds.
 
+#### Lesson47 A thirsty ghost
+
+Mr.Ian Thompson bought a public house but it is haunted so he is going to sell it. There was a strange noise in the bar one night and the room was in disorder next morning. Mr.Thompson found that the doors had been blocked by chairs and the furniture had been moved. He doesn't believe that some villagers broke into the bar and had a drink. Anybody in the village wantn't to buy the pub.
+
 
