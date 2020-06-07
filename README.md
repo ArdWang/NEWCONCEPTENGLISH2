@@ -241,4 +241,10 @@ The plane from Landon arrived at Sydney airport and workers unload a number of w
 
 Mr.Ian Thompson bought a public house but it is haunted so he is going to sell it. There was a strange noise in the bar one night and the room was in disorder next morning. Mr.Thompson found that the doors had been blocked by chairs and the furniture had been moved. He doesn't believe that some villagers broke into the bar and had a drink. Anybody in the village wantn't to buy the pub.
 
+#### 48 Did you want to tell me something?
+
+The dentist in the stroy pulled out one of the writer's teeth and told him to rest for a while. He asked several questions but the writer couldn't answer them. His mouth full of cotton wool. He suddenly discovered something wrong but he couldn't say anything. The dentist eventually removed the cotton wool from his mouth and the writer told him he had pulled out the wrong tooth.
+
+
+
 
