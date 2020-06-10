@@ -246,5 +246,9 @@ Mr.Ian Thompson bought a public house but it is haunted so he is going to sell i
 The dentist in the stroy pulled out one of the writer's teeth and told him to rest for a while. He asked several questions but the writer couldn't answer them. His mouth full of cotton wool. He suddenly discovered something wrong but he couldn't say anything. The dentist eventually removed the cotton wool from his mouth and the writer told him he had pulled out the wrong tooth.
 
 
+#### 49 The end of a dream
+
+A young man in Teheran bought a real bed for the first time in his life. Because the weather was very hot, he slept on the roof of his house. The bed was swept off the roof during a storm three nights later. The man was not only unhurt but he was still on his mattress.The bed was in pieces. he carried the mattress indoors as he put it on the floor and went back to sleep. 
+
 
 
