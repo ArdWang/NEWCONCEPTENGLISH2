@@ -250,5 +250,9 @@ The dentist in the stroy pulled out one of the writer's teeth and told him to re
 
 A young man in Teheran bought a real bed for the first time in his life. Because the weather was very hot, he slept on the roof of his house. The bed was swept off the roof during a storm three nights later. The man was not only unhurt but he was still on his mattress.The bed was in pieces. he carried the mattress indoors as he put it on the floor and went back to sleep. 
 
+#### Lesson50 Taken for a ride
+
+The writer wanted to Woodford Green but as he didn't know the way, the conductor promised to tell him where to get off. When they arrived at the bus terminus, the writer asked,'Is the Woodford Green?',The conductor then realized that he forgot to put him off. The writer stayed on the bus because it was going back.
+
 
 
