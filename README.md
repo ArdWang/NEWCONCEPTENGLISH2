@@ -254,5 +254,9 @@ A young man in Teheran bought a real bed for the first time in his life. Because
 
 The writer wanted to Woodford Green but as he didn't know the way, the conductor promised to tell him where to get off. When they arrived at the bus terminus, the writer asked,'Is the Woodford Green?',The conductor then realized that he forgot to put him off. The writer stayed on the bus because it was going back.
 
+#### Lesson 51 Reward for virtue
+
+Hugh is so fat that he has gone on a diet. He has forbidden himself all the foods he likes but he hasn't lost weight. When the writer visited him yesterday he hid a large parcel under his desk. The parcel contained chocolate and sweets. Hugh said that he had to reward himself occasionally because his diet was so strict.
+
 
 
