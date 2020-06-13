@@ -258,5 +258,8 @@ The writer wanted to Woodford Green but as he didn't know the way, the conductor
 
 Hugh is so fat that he has gone on a diet. He has forbidden himself all the foods he likes but he hasn't lost weight. When the writer visited him yesterday he hid a large parcel under his desk. The parcel contained chocolate and sweets. Hugh said that he had to reward himself occasionally because his diet was so strict.
 
+#### Lesson 52 A pretty carpet
+
+The writer has been trying to get his new room in order all morning. Because he own over a thousand books which they cover every inch of floor space at the moment. His sister helped him to carry on of he old bookcases up the stairs a short while ago. She got a surprise when she saw his room but she thought that the books made a pretty carpet.
 
 
