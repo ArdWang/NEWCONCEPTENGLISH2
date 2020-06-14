@@ -262,4 +262,7 @@ Hugh is so fat that he has gone on a diet. He has forbidden himself all the food
 
 The writer has been trying to get his new room in order all morning. Because he own over a thousand books which they cover every inch of floor space at the moment. His sister helped him to carry on of he old bookcases up the stairs a short while ago. She got a surprise when she saw his room but she thought that the books made a pretty carpet.
 
+#### Lesson 53 Hot snake
+
+Now that firemen hava put out a big forest fire in California, they have been trying to discover its cause. There was no evidence that it was started by broken glass or by cigarette end. However, a fireman has just solved the mystery. He noticed the remains of a snake which had been by a bird on to the electic wires. In winding itself round the wires, the snake had sent sparks to the ground and its caused the fire.
 
