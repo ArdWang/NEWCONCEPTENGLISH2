@@ -266,3 +266,7 @@ The writer has been trying to get his new room in order all morning. Because he 
 
 Now that firemen hava put out a big forest fire in California, they have been trying to discover its cause. There was no evidence that it was started by broken glass or by cigarette end. However, a fireman has just solved the mystery. He noticed the remains of a snake which had been by a bird on to the electic wires. In winding itself round the wires, the snake had sent sparks to the ground and its caused the fire.
 
+#### Lesson 54 Sticky fingers
+
+As soon as the writer returned home from the shops, she began to make some meat pies. When the telephone rang soon afterwards, her fingers very sticky. She spent talking to Helen Bates ten minutes on the telephone. After taht she looked at the mess she had made. The telephone and the doornobs were covered with pastry. Just then the postman rang the doorbell. He wanted her to sign for a registered letter.
+
