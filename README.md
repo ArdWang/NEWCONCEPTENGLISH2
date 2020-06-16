@@ -270,3 +270,7 @@ Now that firemen hava put out a big forest fire in California, they have been tr
 
 As soon as the writer returned home from the shops, she began to make some meat pies. When the telephone rang soon afterwards, her fingers very sticky. She spent talking to Helen Bates ten minutes on the telephone. After taht she looked at the mess she had made. The telephone and the doornobs were covered with pastry. Just then the postman rang the doorbell. He wanted her to sign for a registered letter.
 
+#### Lesson 55 Not a gold mine
+
+The Revealer is a new machine which is used for detecting buried gold. Using this machine a search party recently tried to find gold in a cave near the seashore. Although they examined the cave thoroughly they only found a small gold coin which was practically worthless. However many people believe that the machine may reveal something of value soon.
+
