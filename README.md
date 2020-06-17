@@ -274,3 +274,7 @@ As soon as the writer returned home from the shops, she began to make some meat 
 
 The Revealer is a new machine which is used for detecting buried gold. Using this machine a search party recently tried to find gold in a cave near the seashore. Although they examined the cave thoroughly they only found a small gold coin which was practically worthless. However many people believe that the machine may reveal something of value soon.
 
+#### Lesson56 Faster than sound!
+
+A lot of old cars entered for the race which is held once a year. A great many loud explosions could be head when they set off and though many cars broken down during the race, a few manage to comepleted the course. The winning car went downhill so quickly that its driver had a lot of difficulty trying to stop it.
+
