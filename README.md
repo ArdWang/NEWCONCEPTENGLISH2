@@ -278,3 +278,7 @@ The Revealer is a new machine which is used for detecting buried gold. Using thi
 
 A lot of old cars entered for the race which is held once a year. A great many loud explosions could be head when they set off and though many cars broken down during the race, a few manage to comepleted the course. The winning car went downhill so quickly that its driver had a lot of difficulty trying to stop it.
 
+#### Lesson57 Can I help you, madam?
+
+Though the woman in jeans hesitated for a moment, she entered an expensive shop and she asked to see a dress that was in the window. On being told by an assistant that the dress was sold, The woman returned to the shop the following morning, she dressed in a fur coat. The assistant was eager to serve her this time. After making him bring her almost everything in the window, the woman finally bought the dress she had first asked for.
+
