@@ -284,5 +284,5 @@ Though the woman in jeans hesitated for a moment, she entered an expensive shop 
 
 #### Lesson58 A blessing in disguise
 
-
+The number of visitors to the village of Frinley increased, because there is said to be a 'cursed tree' near a church. Since the villagers believe that is anyone picks a leaf he will die, they have asked the vicar to have the tree cut down. As the tree a useful source of income, the vicar he has refused. Meanwhile, though tourists have been picking leaves no one of them come to harm.
 
