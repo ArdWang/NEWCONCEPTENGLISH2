@@ -282,3 +282,7 @@ A lot of old cars entered for the race which is held once a year. A great many l
 
 Though the woman in jeans hesitated for a moment, she entered an expensive shop and she asked to see a dress that was in the window. On being told by an assistant that the dress was sold, The woman returned to the shop the following morning, she dressed in a fur coat. The assistant was eager to serve her this time. After making him bring her almost everything in the window, the woman finally bought the dress she had first asked for.
 
+#### Lesson58 A blessing in disguise
+
+
+
