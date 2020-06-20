@@ -286,3 +286,7 @@ Though the woman in jeans hesitated for a moment, she entered an expensive shop 
 
 The number of visitors to the village of Frinley increased, because there is said to be a 'cursed tree' near a church. Since the villagers believe that is anyone picks a leaf he will die, they have asked the vicar to have the tree cut down. As the tree a useful source of income, the vicar he has refused. Meanwhile, though tourists have been picking leaves no one of them come to harm.
 
+#### Lesson 59 In or out
+
+Our dog, Rex, used to sit outside the front gate and bark so that someone opened the gate. Ever since my husband trained him to open the gate himself. Rex has developed another bad habit. He barks when he is in the garden so that someone will let him out. After this he lets himself in and bark until someone opens the gate again. Now that my husband has removed the gate, Rex has disappeared.
+
