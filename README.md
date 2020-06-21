@@ -290,3 +290,7 @@ The number of visitors to the village of Frinley increased, because there is sai
 
 Our dog, Rex, used to sit outside the front gate and bark so that someone opened the gate. Ever since my husband trained him to open the gate himself. Rex has developed another bad habit. He barks when he is in the garden so that someone will let him out. After this he lets himself in and bark until someone opens the gate again. Now that my husband has removed the gate, Rex has disappeared.
 
+#### Lesson 60 The future
+
+The writer visited at a village fair who told him that a relation was coming to see him. She added that a woman he knew well would  speak to him when he left the tent and he would follow her out of the fair. This come ture, Because his wife spoke to him when he went outside. She told him they had to meet at the station and she led him out of the fair.
+
