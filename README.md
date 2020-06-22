@@ -282,8 +282,7 @@ A lot of old cars entered for the race which is held once a year. A great many l
 
 Though the woman in jeans hesitated for a moment, she entered an expensive shop and she asked to see a dress that was in the window. On being told by an assistant that the dress was sold, The woman returned to the shop the following morning, she dressed in a fur coat. The assistant was eager to serve her this time. After making him bring her almost everything in the window, the woman finally bought the dress she had first asked for.
 
-#### Lesson58 A blessing in disguise
-
+#### Lesson58 A blessing in disguiseeven
 The number of visitors to the village of Frinley increased, because there is said to be a 'cursed tree' near a church. Since the villagers believe that is anyone picks a leaf he will die, they have asked the vicar to have the tree cut down. As the tree a useful source of income, the vicar he has refused. Meanwhile, though tourists have been picking leaves no one of them come to harm.
 
 #### Lesson 59 In or out
@@ -293,4 +292,8 @@ Our dog, Rex, used to sit outside the front gate and bark so that someone opened
 #### Lesson 60 The future
 
 The writer visited at a village fair who told him that a relation was coming to see him. She added that a woman he knew well would  speak to him when he left the tent and he would follow her out of the fair. This come ture, Because his wife spoke to him when he went outside. She told him they had to meet at the station and she led him out of the fair.
+
+#### Lesson 61 Trouble with the Hubble
+
+When the Hubble telescope launched into space by NASA on April 20, 1990, the pictures it sent us were very disappointing because its main mirror was faulty. Four astronauts will soon be making the necessary repairs and eventually, pictures from the Hubble will tell us a great deal about the age and size of the universe.
 
