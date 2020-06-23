@@ -297,3 +297,7 @@ The writer visited at a village fair who told him that a relation was coming to 
 
 When the Hubble telescope launched into space by NASA on April 20, 1990, the pictures it sent us were very disappointing because its main mirror was faulty. Four astronauts will soon be making the necessary repairs and eventually, pictures from the Hubble will tell us a great deal about the age and size of the universe.
 
+#### Lesson 62 After the fire
+
+It taken the firemen nearly three weeks to get the forest fire under control. Now that all the great trees had been burnt, there was danger that heavy rain would cause serious floods which would destory the surrounding villages. To prevent this the forest authorities ordered grass-seed which was sprayed over the ground by planes for nearly a month. By the time that it began to rain, the grass had taken root in many places. 
+
