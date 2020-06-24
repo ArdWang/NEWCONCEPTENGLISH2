@@ -301,3 +301,7 @@ When the Hubble telescope launched into space by NASA on April 20, 1990, the pic
 
 It taken the firemen nearly three weeks to get the forest fire under control. Now that all the great trees had been burnt, there was danger that heavy rain would cause serious floods which would destory the surrounding villages. To prevent this the forest authorities ordered grass-seed which was sprayed over the ground by planes for nearly a month. By the time that it began to rain, the grass had taken root in many places. 
 
+#### Lesson 63 She was not amused
+
+When Jeremy Hampden who is greatly admired for his great sense of humour, was he invited to make a speech at a wedding reception, he immediately agreed to do so. Since the speech contained a lot of funny stories it was a great success. When his six-year-old daughter, Jenny, wanted to go home after his speech, Jeremy was disappionted. She had not enjoyed it because she didn't like to see so many people laughing at him.
+
