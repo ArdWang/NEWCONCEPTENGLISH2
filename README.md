@@ -305,3 +305,6 @@ It taken the firemen nearly three weeks to get the forest fire under control. No
 
 When Jeremy Hampden who is greatly admired for his great sense of humour, was he invited to make a speech at a wedding reception, he immediately agreed to do so. Since the speech contained a lot of funny stories it was a great success. When his six-year-old daughter, Jenny, wanted to go home after his speech, Jeremy was disappionted. She had not enjoyed it because she didn't like to see so many people laughing at him.
 
+#### Lesson 64 The Channel Tunnel
+
+The tunnel, which French engineer, Aime Thome de Gamond, planned to build a tunnel under the English channel in 1858, would be ventilated by tall chimneys built above sea level. William Low, He suggested a better plan two years later. Passing trains would solve the problem of ventilation in his proposed double railway-tunnel because they would draw in fresh air behind them. Though work began forty-two years later, it was stopped because the Britain feared invasion. However, the channel tunnel opened on March 7,1994.
