@@ -308,3 +308,7 @@ When Jeremy Hampden who is greatly admired for his great sense of humour, was he
 #### Lesson 64 The Channel Tunnel
 
 The tunnel, which French engineer, Aime Thome de Gamond, planned to build a tunnel under the English channel in 1858, would be ventilated by tall chimneys built above sea level. William Low, He suggested a better plan two years later. Passing trains would solve the problem of ventilation in his proposed double railway-tunnel because they would draw in fresh air behind them. Though work began forty-two years later, it was stopped because the Britain feared invasion. However, the channel tunnel opened on March 7,1994.
+
+#### Lesson 65 Jumbo versus the police
+
+After having decided to take some presents to a children's hospital, the circus owner, Jimmy Gates, dressed up as Father Christmas and set off down the main street of the city ridding an elephant called Jumbo. On being told that he was holding up the traffic, Jimmy agreed to go at once, but Jumbo refused to move so fifteen policemen had to push him off the main street. As he had a good record, however, Jumbo wasn't arrested.
