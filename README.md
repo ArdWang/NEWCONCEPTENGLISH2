@@ -312,3 +312,7 @@ The tunnel, which French engineer, Aime Thome de Gamond, planned to build a tunn
 #### Lesson 65 Jumbo versus the police
 
 After having decided to take some presents to a children's hospital, the circus owner, Jimmy Gates, dressed up as Father Christmas and set off down the main street of the city ridding an elephant called Jumbo. On being told that he was holding up the traffic, Jimmy agreed to go at once, but Jumbo refused to move so fifteen policemen had to push him off the main street. As he had a good record, however, Jumbo wasn't arrested.
+
+#### Lesson 66 Sweet as honey!
+
+The Lancaster bomber was badly damaged when it crashed on a remote island in the South Pacific. Then the wreck remained undisturbed in an aerial survey of the island. The French authorities had the plane packaged and moved in parts back to France, where a group of enthusiasts will be having it restored. They will have to have three of the engines rebuilt, but the fourth engine still in perfect condition, because a colony of bees had turned the engine into a hive and it was totally preserved in beeswax! 
