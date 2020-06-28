@@ -316,3 +316,8 @@ After having decided to take some presents to a children's hospital, the circus 
 #### Lesson 66 Sweet as honey!
 
 The Lancaster bomber was badly damaged when it crashed on a remote island in the South Pacific. Then the wreck remained undisturbed in an aerial survey of the island. The French authorities had the plane packaged and moved in parts back to France, where a group of enthusiasts will be having it restored. They will have to have three of the engines rebuilt, but the fourth engine still in perfect condition, because a colony of bees had turned the engine into a hive and it was totally preserved in beeswax! 
+
+
+#### Lesson 67 Volcanoes
+
+Tazieff, the Polish scientist went to Lake Kivu in the Congo in 1948 to observe a new volcano which he called Kituro. After taking photographs, he had to leave almost at once because a river of liquid rock threatened to surround him. He escaped just in time, but he returned two days later when the vocano had become quiet. He climed this time, in order to take photographs and measure temperatures.
