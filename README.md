@@ -321,3 +321,7 @@ The Lancaster bomber was badly damaged when it crashed on a remote island in the
 #### Lesson 67 Volcanoes
 
 Tazieff, the Polish scientist went to Lake Kivu in the Congo in 1948 to observe a new volcano which he called Kituro. After taking photographs, he had to leave almost at once because a river of liquid rock threatened to surround him. He escaped just in time, but he returned two days later when the vocano had become quiet. He climed this time, in order to take photographs and measure temperatures.
+
+#### Lesson 68 Persistent
+
+Even though Elizabeth tried to avoid meeting Nigel Dykes, she was able to do so. As he always insist on accompanying her, she had to think of a way of preventing him from following me around all morning. When told him she was going to the dentist, he said he would come with her because there was always plenty to read in the waiting room!.
