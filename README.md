@@ -325,3 +325,7 @@ Tazieff, the Polish scientist went to Lake Kivu in the Congo in 1948 to observe 
 #### Lesson 68 Persistent
 
 Even though Elizabeth tried to avoid meeting Nigel Dykes, she was able to do so. As he always insist on accompanying her, she had to think of a way of preventing him from following me around all morning. When told him she was going to the dentist, he said he would come with her because there was always plenty to read in the waiting room!.
+
+#### Lesson 69 But not murder!
+
+Mr.Eames had driven successfully in heavy traffic during his third driving test when the examiner instructed him to drive out of town. He told him to suppose that a child suddenly crosses the road in front of him, Mr.Eames would have to stop the car within five feet, when the examiner tapped on the window. Though the taped loudly. Mr.Eames didn't rect quickly enough and was told that he just killed that child.
