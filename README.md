@@ -329,3 +329,7 @@ Even though Elizabeth tried to avoid meeting Nigel Dykes, she was able to do so.
 #### Lesson 69 But not murder!
 
 Mr.Eames had driven successfully in heavy traffic during his third driving test when the examiner instructed him to drive out of town. He told him to suppose that a child suddenly crosses the road in front of him, Mr.Eames would have to stop the car within five feet, when the examiner tapped on the window. Though the taped loudly. Mr.Eames didn't rect quickly enough and was told that he just killed that child.
+
+#### Lesson 70 Red of danger
+
+A drunk suddenly wandered into the middle of the ring during a bullfight and he waved red cap. Ignoring the matador the bull charged at the drunk, but he stepped aside to let is passed. The crowd cheered and the drunk bowed. Just after this, three men dragged the drunk to safety while the bull looked on sympathetically before it noce more turn its attention to the matador. 
