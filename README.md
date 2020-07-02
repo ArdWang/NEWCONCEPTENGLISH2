@@ -333,3 +333,8 @@ Mr.Eames had driven successfully in heavy traffic during his third driving test 
 #### Lesson 70 Red of danger
 
 A drunk suddenly wandered into the middle of the ring during a bullfight and he waved red cap. Ignoring the matador the bull charged at the drunk, but he stepped aside to let is passed. The crowd cheered and the drunk bowed. Just after this, three men dragged the drunk to safety while the bull looked on sympathetically before it noce more turn its attention to the matador. 
+
+#### Lesson 71 A famous clock
+
+After the Houses of Pariliament burnt down in 1834, Sir Benjamin Hall was made responsible for the construction of a huge clock, which it became known as Big Ben. It is very accurate despite its immense size, for Officials from Greenwich Observatory have the clock checked twice a day. This clock which has rarely gone wrong, can be heard on the BBC, when it is striking because microphones are connected to the clock tower.
+
