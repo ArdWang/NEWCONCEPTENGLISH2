@@ -338,3 +338,8 @@ A drunk suddenly wandered into the middle of the ring during a bullfight and he 
 
 After the Houses of Pariliament burnt down in 1834, Sir Benjamin Hall was made responsible for the construction of a huge clock, which it became known as Big Ben. It is very accurate despite its immense size, for Officials from Greenwich Observatory have the clock checked twice a day. This clock which has rarely gone wrong, can be heard on the BBC, when it is striking because microphones are connected to the clock tower.
 
+#### Lesson 72 A car called Bluebird
+
+Sir Malcolm Campbell set up a land-speed in 1935, driving a car called Bluebird which had been specially built for him. His average speed incorrectly declared to be 299 miles per hour, but this mistake was corrected later. He had averaged 301 miles an hour. Years later, his son,Donald, also set up a world record and his car was called Bluebird.
+
+
