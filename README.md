@@ -343,8 +343,12 @@ After the Houses of Pariliament burnt down in 1834, Sir Benjamin Hall was made r
 Sir Malcolm Campbell set up a land-speed in 1935, driving a car called Bluebird which had been specially built for him. His average speed incorrectly declared to be 299 miles per hour, but this mistake was corrected later. He had averaged 301 miles an hour. Years later, his son,Donald, also set up a world record and his car was called Bluebird.
 
 
-#### Lesson 73 The record-holder
+#### Lesson 73 The record-holde
 
 A boy who played truant travelled 1600 miles. He hitchhiked to Dover where he slept in a boat, only find himself in Calais the next morning. A lorry driver give him a lift and something to eat, and the boy got off near Paris. He stopped another car but, instead of being taken to Paris,he was taken to Perpignan on the French-Spanish border. After being picked up by a policeman, he was sent home by the local authorities.
+
+#### Lesson 74 Out of limelight
+
+An ancient bus stopped by a dry river bed. A part of famous film stars descended, dressed in dark glasses and ol clothes, in order that no one should recognize them. Two of the actores carried picnic things to shady spot. Everyone had sat down when a sheriff appeared and told them ruddely that they must leave as camping was not allowed there. They told him who they were but he didn't we believe them.
 
 
