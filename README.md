@@ -351,4 +351,6 @@ A boy who played truant travelled 1600 miles. He hitchhiked to Dover where he sl
 
 An ancient bus stopped by a dry river bed. A part of famous film stars descended, dressed in dark glasses and ol clothes, in order that no one should recognize them. Two of the actores carried picnic things to shady spot. Everyone had sat down when a sheriff appeared and told them ruddely that they must leave as camping was not allowed there. They told him who they were but he didn't we believe them.
 
-
+#### Lesson 75 Sos
+ 
+When a plane crashed in the mountains, the only passengers, a young woman and her two daughters unhurt. However it was middle of winter and extremely cold. After putting children in case and covered them with clothes, the woman kept close to them all ninght. On hearing planes a early next morning, the woman stamped 'SOS' in the snow, which was seen by pilot. A message was sent and they were soon rescued by a helicopter.
