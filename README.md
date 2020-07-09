@@ -354,3 +354,8 @@ An ancient bus stopped by a dry river bed. A part of famous film stars descended
 #### Lesson 75 Sos
  
 When a plane crashed in the mountains, the only passengers, a young woman and her two daughters unhurt. However it was middle of winter and extremely cold. After putting children in case and covered them with clothes, the woman kept close to them all ninght. On hearing planes a early next morning, the woman stamped 'SOS' in the snow, which was seen by pilot. A message was sent and they were soon rescued by a helicopter.
+
+#### Lesson 76 April Fool's Day
+
+The end of news bulletin, the television announcer showed viewers the fields of Calabria. Here, Macaroni has been grown for over six hundred years. This year, harvesting  has been earlier. The whole village has been working had, gathering and threshing before the September rains, so that the crop can be proccessed in the local factory. After harvest the famous campetition will be held. This has been won by Signor Fratelli every year since 1991, with that, the news bulletin for April 1st ended. 
+
