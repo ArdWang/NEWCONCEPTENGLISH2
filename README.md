@@ -359,3 +359,7 @@ When a plane crashed in the mountains, the only passengers, a young woman and he
 
 The end of news bulletin, the television announcer showed viewers the fields of Calabria. Here, Macaroni has been grown for over six hundred years. This year, harvesting  has been earlier. The whole village has been working had, gathering and threshing before the September rains, so that the crop can be proccessed in the local factory. After harvest the famous campetition will be held. This has been won by Signor Fratelli every year since 1991, with that, the news bulletin for April 1st ended. 
 
+#### Lesson 77 A successful operation
+
+Doctors have just operated on the mummy of an Egyptian woman who died in 800 B.C, in order to find out if she died a rare disease. They removed section of the mummy which they sent it to a laboratory. Inside the mummy, the unexpectedly found a small wax figure of a god. They very afraid the mummy would fall to pieces, but it survived the operation.
+
