@@ -363,3 +363,7 @@ The end of news bulletin, the television announcer showed viewers the fields of 
 
 Doctors have just operated on the mummy of an Egyptian woman who died in 800 B.C, in order to find out if she died a rare disease. They removed section of the mummy which they sent it to a laboratory. Inside the mummy, the unexpectedly found a small wax figure of a god. They very afraid the mummy would fall to pieces, but it survived the operation.
 
+#### Lesson 78 The last one
+
+The writer read an article on smoking and smoked his last cigarette. He did not smoke for a whole week and his wife suffered terribly because of her husband's bad temper and large appetite. Whenever his friends offered him cigarettes they were amused because he would produced a packet of sweets from his pocket. However at a party he accepted a cigarette from a friend. Now thing's have returned to normal.
+
