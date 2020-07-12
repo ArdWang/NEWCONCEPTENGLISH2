@@ -367,3 +367,8 @@ Doctors have just operated on the mummy of an Egyptian woman who died in 800 B.C
 
 The writer read an article on smoking and smoked his last cigarette. He did not smoke for a whole week and his wife suffered terribly because of her husband's bad temper and large appetite. Whenever his friends offered him cigarettes they were amused because he would produced a packet of sweets from his pocket. However at a party he accepted a cigarette from a friend. Now thing's have returned to normal.
 
+#### Lesson 79 By air
+
+The plane took off and flew low over the city. When it was slowing gaining height, it suddenly, had to return to the airport. Meanwhile the passengers were told to keep calm. After they had disembarked, they learnt that there was a very important person on board. Someone had told the police that a bomb had been planted on the plane, but though it was searched, nothing was found, Five hours later, it took off again.
+
+
