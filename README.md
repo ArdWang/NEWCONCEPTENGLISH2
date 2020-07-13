@@ -371,4 +371,6 @@ The writer read an article on smoking and smoked his last cigarette. He did not 
 
 The plane took off and flew low over the city. When it was slowing gaining height, it suddenly, had to return to the airport. Meanwhile the passengers were told to keep calm. After they had disembarked, they learnt that there was a very important person on board. Someone had told the police that a bomb had been planted on the plane, but though it was searched, nothing was found, Five hours later, it took off again.
 
+#### Lesson 80 The Crystal Palace
 
+The Crystal Palace, which was built for the Great Exhibition of 1851, was different from all other buildings because it was made of iron and glass. Goods from various parts of the world were on display as well as great deal of machinery. So many vistors came by boat and train that it was possible to build colleges and museums from the profits. After the exhibition, the Crystal Palace was moved to South London, where it remained until was burnt down in 1936.
