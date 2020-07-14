@@ -374,3 +374,8 @@ The plane took off and flew low over the city. When it was slowing gaining heigh
 #### Lesson 80 The Crystal Palace
 
 The Crystal Palace, which was built for the Great Exhibition of 1851, was different from all other buildings because it was made of iron and glass. Goods from various parts of the world were on display as well as great deal of machinery. So many vistors came by boat and train that it was possible to build colleges and museums from the profits. After the exhibition, the Crystal Palace was moved to South London, where it remained until was burnt down in 1936.
+
+#### Lesson 81 Escape
+
+As soon as he had killed the guard and dragged him into bushes, the prisoner of war changed into clothes. With a rifle over his shoulder, he was marching up and down in front of the camp when four officers drove up in a car. He stood to attention and saluted, when the driver came towards him, the prisoner knocked him out. Then he jumping into the car and drove away.
+
