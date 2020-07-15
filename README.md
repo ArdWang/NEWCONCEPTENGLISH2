@@ -379,3 +379,7 @@ The Crystal Palace, which was built for the Great Exhibition of 1851, was differ
 
 As soon as he had killed the guard and dragged him into bushes, the prisoner of war changed into clothes. With a rifle over his shoulder, he was marching up and down in front of the camp when four officers drove up in a car. He stood to attention and saluted, when the driver came towards him, the prisoner knocked him out. Then he jumping into the car and drove away.
 
+#### Lesson 82 Monster or fish?
+
+A strange fish was caught near Madagascar after having pulled a small fishing boat miles out to sea. Making every effort not to damage the fish, the fisherman, brought it to shore. The fish, which was over thirteen feet long, with a head like a horse, was sent to a museum. It is being examined by a scientist, who said that it was an oarfish and that such creatures live at a depth of six hundred feet.
+
