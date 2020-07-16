@@ -383,3 +383,7 @@ As soon as he had killed the guard and dragged him into bushes, the prisoner of 
 
 A strange fish was caught near Madagascar after having pulled a small fishing boat miles out to sea. Making every effort not to damage the fish, the fisherman, brought it to shore. The fish, which was over thirteen feet long, with a head like a horse, was sent to a museum. It is being examined by a scientist, who said that it was an oarfish and that such creatures live at a depth of six hundred feet.
 
+#### Lesson 83 After the elections
+
+Since being defeated in the recent elections, the former Prime Minister, Mr Wentworth Lane, has retired abroad. As my friend Patrick has always been a fanatical opponent of Mr. Lane's Radical Progressive party, he went to his house three times. Each time he asked the same policeman if it was Mr. Lane's house. The third time he was told again by angry policeman of Mr.Lane's defeat and retirement, but Patrick said it was something he loved to hear.
+
