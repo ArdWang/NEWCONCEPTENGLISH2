@@ -387,3 +387,7 @@ A strange fish was caught near Madagascar after having pulled a small fishing bo
 
 Since being defeated in the recent elections, the former Prime Minister, Mr Wentworth Lane, has retired abroad. As my friend Patrick has always been a fanatical opponent of Mr. Lane's Radical Progressive party, he went to his house three times. Each time he asked the same policeman if it was Mr. Lane's house. The third time he was told again by angry policeman of Mr.Lane's defeat and retirement, but Patrick said it was something he loved to hear.
 
+#### Lesson 84 On strike
+
+The busmen's strike, which begin is on Tuesday, May last a week. Because of this, cars owners have offered to give rides to people going to work. University students, too, have volunteered to drive buses but they will have to pass, a spacial test. Though it will be diffcult to get to work, the public is grateful to students. Only one or two people have objected that the students will drive too fast.
+
