@@ -391,3 +391,6 @@ Since being defeated in the recent elections, the former Prime Minister, Mr Went
 
 The busmen's strike, which begin is on Tuesday, May last a week. Because of this, cars owners have offered to give rides to people going to work. University students, too, have volunteered to drive buses but they will have to pass, a spacial test. Though it will be diffcult to get to work, the public is grateful to students. Only one or two people have objected that the students will drive too fast.
 
+#### Lesson 85 Never too old to them
+
+Now that my former headmaster, Mr.Page, is retring, pupils of the school will be sending him a gift and an album with the signatures of all those who have contributed. Many former pupils will be attending a fare well dinner in his honour. After having completed forty years as teacher, Mr.Page will devote himself to gardening, wich will be a new hobby for him, but one is never too old to learn.
