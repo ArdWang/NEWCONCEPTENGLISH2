@@ -394,3 +394,7 @@ The busmen's strike, which begin is on Tuesday, May last a week. Because of this
 #### Lesson 85 Never too old to them
 
 Now that my former headmaster, Mr.Page, is retring, pupils of the school will be sending him a gift and an album with the signatures of all those who have contributed. Many former pupils will be attending a fare well dinner in his honour. After having completed forty years as teacher, Mr.Page will devote himself to gardening, wich will be a new hobby for him, but one is never too old to learn.
+
+#### Lesson 86 Out of control
+
+The moment the speedboat struck the buoy, both men were thrown into the water. As it moved of very quickly across the water, the men began to swim towards the shore. Turning in a circle, the speedboat came staight towards them. After it had just missed them, they swam until they were out of danger. When the boat returned it had lost speed. Soon all the petrol was used up and it floated across the water.
