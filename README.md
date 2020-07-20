@@ -398,3 +398,7 @@ Now that my former headmaster, Mr.Page, is retring, pupils of the school will be
 #### Lesson 86 Out of control
 
 The moment the speedboat struck the buoy, both men were thrown into the water. As it moved of very quickly across the water, the men began to swim towards the shore. Turning in a circle, the speedboat came staight towards them. After it had just missed them, they swam until they were out of danger. When the boat returned it had lost speed. Soon all the petrol was used up and it floated across the water.
+
+#### Lesson 87 A perfect alibi
+
+At the time of the murder, the man claimed that he had been travelling on the 8 o'clock train to London and had arrived at work on time. When the inspector asked if a later trian would get him to work on time, the man agreed it would but said that he always travelled early. The inspector suggested that he was lying because that morning, the 8 o'clock train broken down, so the man must have caught the 8.25.
