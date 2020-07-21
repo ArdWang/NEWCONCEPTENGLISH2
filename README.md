@@ -402,3 +402,7 @@ The moment the speedboat struck the buoy, both men were thrown into the water. A
 #### Lesson 87 A perfect alibi
 
 At the time of the murder, the man claimed that he had been travelling on the 8 o'clock train to London and had arrived at work on time. When the inspector asked if a later trian would get him to work on time, the man agreed it would but said that he always travelled early. The inspector suggested that he was lying because that morning, the 8 o'clock train broken down, so the man must have caught the 8.25.
+
+#### Lesson 88 Trapped in a mine
+
+Six men who have been trapped in a mine for seventeen hours may lose lives because rescue operations are proving diffcult. Since explosives might cause the roof of the mine to collpase, rescue workers a drilling a hole through hard rock but progress is slow. The hours ago, a microphone was lowered into the mine and the men have been in touch with their relatives. They are running short of food and drink but they are in good spirits.
