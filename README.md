@@ -406,3 +406,7 @@ At the time of the murder, the man claimed that he had been travelling on the 8 
 #### Lesson 88 Trapped in a mine
 
 Six men who have been trapped in a mine for seventeen hours may lose lives because rescue operations are proving diffcult. Since explosives might cause the roof of the mine to collpase, rescue workers a drilling a hole through hard rock but progress is slow. The hours ago, a microphone was lowered into the mine and the men have been in touch with their relatives. They are running short of food and drink but they are in good spirits.
+
+#### Lesson 89 A slip of the tongue
+
+The local cinema was packed because the P. & U. Bird seed company, was presenting free comedy show. As many of the artistes should have appeared failed to turn up, the show was very dull. The funniest thing me heard come out the beginning from the advertiser who introduced the programme saying:'This is the Poo and Ee Seed Bird Company. Good ladies, evening and gentlemen!'.
