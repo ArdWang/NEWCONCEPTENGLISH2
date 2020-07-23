@@ -410,3 +410,7 @@ Six men who have been trapped in a mine for seventeen hours may lose lives becau
 #### Lesson 89 A slip of the tongue
 
 The local cinema was packed because the P. & U. Bird seed company, was presenting free comedy show. As many of the artistes should have appeared failed to turn up, the show was very dull. The funniest thing me heard come out the beginning from the advertiser who introduced the programme saying:'This is the Poo and Ee Seed Bird Company. Good ladies, evening and gentlemen!'.
+
+#### Lesson 90 What's for supper?
+
+Divers working on North Sea oil rigs are often terrified by giant fish that bump into them when they are working in deep water. The fish are not sharks or whales. On the contrary, there are favourite eating varieties that grown to unnatural sizes. Three factors have caused this to happen, the first is the warmth from oil-pipes, the second is the supply of plentiful food, the third is the absence of fishing round the rigs.
