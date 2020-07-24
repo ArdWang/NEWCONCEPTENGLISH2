@@ -414,3 +414,7 @@ The local cinema was packed because the P. & U. Bird seed company, was presentin
 #### Lesson 90 What's for supper?
 
 Divers working on North Sea oil rigs are often terrified by giant fish that bump into them when they are working in deep water. The fish are not sharks or whales. On the contrary, there are favourite eating varieties that grown to unnatural sizes. Three factors have caused this to happen, the first is the warmth from oil-pipes, the second is the supply of plentiful food, the third is the absence of fishing round the rigs.
+
+#### Lesson 91 Three men in a basket
+
+Which circling the balloon, the pilot saw three men in the basket, one of whom was holding a pair of binoculars when it flew over the station, one of the men took photographs. Then it landed near an airfield, but the police could not's arrest Parliament and the Commanding officer of the station. Afterwards the Commanding Officer explained that one half of the station did not know what the other half was doing. 
