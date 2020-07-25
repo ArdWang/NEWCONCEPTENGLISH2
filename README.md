@@ -418,3 +418,7 @@ Divers working on North Sea oil rigs are often terrified by giant fish that bump
 #### Lesson 91 Three men in a basket
 
 Which circling the balloon, the pilot saw three men in the basket, one of whom was holding a pair of binoculars when it flew over the station, one of the men took photographs. Then it landed near an airfield, but the police could not's arrest Parliament and the Commanding officer of the station. Afterwards the Commanding Officer explained that one half of the station did not know what the other half was doing. 
+
+#### Lesson92 Asking for trouble
+
+The writer returned home at about two in the morning and rang doorbell. Having failed to wake up his wife he put a ladder against the wall and begain climbing towards the bedroom window. Sunddenly a policeman called out, but the writer answered rudey. He told him he had forgotten his key. The shouting wake up his wife, she opened window just as the policeman had started climbing the ladder after him.
