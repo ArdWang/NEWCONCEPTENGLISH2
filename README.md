@@ -422,3 +422,7 @@ Which circling the balloon, the pilot saw three men in the basket, one of whom w
 #### Lesson92 Asking for trouble
 
 The writer returned home at about two in the morning and rang doorbell. Having failed to wake up his wife he put a ladder against the wall and begain climbing towards the bedroom window. Sunddenly a policeman called out, but the writer answered rudey. He told him he had forgotten his key. The shouting wake up his wife, she opened window just as the policeman had started climbing the ladder after him.
+
+#### Lesson 93 A noble gift
+
+The statue of Liberty, which was presented to the U.S.A by the French people in the 19th century, was designed by Bartholdi and built on a metal frame costructed by Eiffel. The site chosen for it was island at the entrance of New York harbour,where a pedestal had to be bulit. The statue was erected in Paris in 1884 and re-erected two years later in America. It was officially presented in October 1886.
