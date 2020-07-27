@@ -426,3 +426,7 @@ The writer returned home at about two in the morning and rang doorbell. Having f
 #### Lesson 93 A noble gift
 
 The statue of Liberty, which was presented to the U.S.A by the French people in the 19th century, was designed by Bartholdi and built on a metal frame costructed by Eiffel. The site chosen for it was island at the entrance of New York harbour,where a pedestal had to be bulit. The statue was erected in Paris in 1884 and re-erected two years later in America. It was officially presented in October 1886.
+
+#### Lesson 94 Future champions
+
+At swimming pool in Los Angeles, children are tought to hold their breath under water before they can walk. They begin learning when they are two months old age,  in time, they can pick up weights form the bottom of pool. The game they enjoy most is the tricycle race, which takes place seven feet under water, Some children pedal their tricycles, while others push or pull them, and a few get across with out comping up for air.
