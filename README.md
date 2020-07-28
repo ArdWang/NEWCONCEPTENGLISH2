@@ -430,3 +430,7 @@ The statue of Liberty, which was presented to the U.S.A by the French people in 
 #### Lesson 94 Future champions
 
 At swimming pool in Los Angeles, children are tought to hold their breath under water before they can walk. They begin learning when they are two months old age,  in time, they can pick up weights form the bottom of pool. The game they enjoy most is the tricycle race, which takes place seven feet under water, Some children pedal their tricycles, while others push or pull them, and a few get across with out comping up for air.
+
+#### Lesson 95 A fantasy
+
+While the Ambassador of Escalopia was in his office, university students set the basement of the Embassy on fire. When the Ambassador went to investigate, a men called Horst amied a fire extinguisher at him beceuse the thought that the Ambassador's hat which had been made when someone fired a shot, thought his office window. The Ambassador was lucky for he was not wearing it at the time. 
