@@ -434,3 +434,8 @@ At swimming pool in Los Angeles, children are tought to hold their breath under 
 #### Lesson 95 A fantasy
 
 While the Ambassador of Escalopia was in his office, university students set the basement of the Embassy on fire. When the Ambassador went to investigate, a men called Horst amied a fire extinguisher at him beceuse the thought that the Ambassador's hat which had been made when someone fired a shot, thought his office window. The Ambassador was lucky for he was not wearing it at the time. 
+
+#### Lesson 96 The dead return
+
+The Japanese annual Festival for the Dead is a cheerful occasion, for the dead are said to return home. Not only is food laid out for them, but lanterns are lit to guide them as well while people dance and sing all night. The uneaten food is thrown into the sea or a river the next morning. In some places, the lanterns are placed on the sea. People watch from the shore as the lanterns drift out of sight.
+
